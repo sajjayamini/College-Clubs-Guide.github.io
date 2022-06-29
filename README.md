@@ -1,2 +1,2 @@
                              COLLEGE CLUBS GUIDE
-          TO VISIT OUR WEBSITE https://pavanipasupuleti.github.io/CollegeClubsGuide.github.io/
+          TO VISIT OUR WEBSITE https://sajjayamini.github.io/College-Clubs-Guide.github.io/
